@@ -43,8 +43,8 @@ Amacım, **otomasyon tabanlı akıllı sistemler** ve **ölçeklenebilir dijital
 
 ### 📫 Bana Ulaşın
 📍 İstanbul, Türkiye  
-📧 **[E-posta adresin buraya]**  
-💼 [LinkedIn profilin varsa buraya ekleyebilirim]  
+📧 muhammedasafbdk@gmail.com
+💼 [[LinkedIn profilin varsa buraya ekleyebilirim]](https://www.linkedin.com/in/muhammed-asaf-budak-6b9187390/)  
 
 ---
 
